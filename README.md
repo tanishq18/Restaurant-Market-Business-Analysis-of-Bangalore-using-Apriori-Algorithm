@@ -6,4 +6,4 @@ Project Report: https://bit.ly/ProjectReportsOfTanishqWadhwani<br>
 It would help me boost my personal brand.<br>
 Thanks! :) </i><br>
 
-Wish you all the very best!
+Wishing you all the very best!
